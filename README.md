@@ -1,6 +1,6 @@
 ## Howdy Folks
 
-![Yass](/trump-rap-references-kanye-west.jpg)
+![Yass](/grande-lebowski.jpgpic repla)
 
 
 
