@@ -1,6 +1,6 @@
 ## Howdy Folks
 
-![Yass](/grande-lebowski.jpgpic repla)
+![Yass](/grande-lebowski.jpg pic repla)
 
 
 
